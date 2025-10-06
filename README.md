@@ -1,1 +1,1 @@
-# Rifqi-VIX-Bank-Muamalat
+VIX Bank-Muamalat
